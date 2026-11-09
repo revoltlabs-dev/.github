@@ -1,1 +1,1 @@
-- ☄️ Building the software that inevitably should exist, one product at a time.
+- ☄️⚡✨ Building the software that inevitably should exist, one product at a time.
